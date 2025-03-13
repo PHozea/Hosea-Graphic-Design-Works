@@ -7,7 +7,7 @@
 ![1_20240530_165659_0000](https://github.com/user-attachments/assets/272c6b7a-def3-432c-bf91-272c62b71c4c)
 ![Blue   Yellow Modern School Admission Poster_20240628_180853_0000](https://github.com/user-attachments/assets/5d3a2596-6ff4-4f2b-8755-89154448e82f)
 ![Cover_20240701_123214_0000](https://github.com/user-attachments/assets/a3ea2dd4-3fac-48eb-94eb-485ce429fb50)
-[Blue & Yellow Modern School Admission Poster_20240703_095704_0000.pdf](https://github.com/user-attachments/files/19229016/Blue.Yellow.Modern.School.Admission.Poster_20240703_095704_0000.pdf)
+(https://github.com/user-attachments/files/19229016/Blue.Yellow.Modern.School.Admission.Poster_20240703_095704_0000.pdf)
 
 
 
