@@ -1,2 +1,3 @@
 # Hosea-Graphic-Design-Works
 ...
+### project overview
